@@ -23,3 +23,12 @@ OMG HII! my housewife ilysmm please take care of me and gimme Lots of cuddles an
 𓈈 𖣠 "Well, the more you tell me to do something, the less I wanna! Guess that makes me a contrarian."
 
 ILYSMMM, this is our teenage love!! yes i'll watch all ur games and cheer for u, i love ur clingyness and ill always hug u back!! thanks for teaching me french.. ur not the best teacher but the dedication is real!! ilysmm ill always be there and at school (school au mention >_<) i wanna give u Lots of kisses and love!! ilysmm! ur so cutee ♡ 
+
+⌯⌲ OTHERS OKK!! 
+
+𓈈 𖣠 Mizuki Akiyama
+
+'Everything is cute!' 
+
+YES TEENAGE LOVE!! i wanna see u everyday at school and give u lots of hugs!! idc abt ur genderr u can express urself freely with me!! ilysmm mizooke ^_^
+
